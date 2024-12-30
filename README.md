@@ -2,7 +2,7 @@
 - 👀 I’m interested in Website Desgin
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me You can;t!
+- 📫 How to reach me: You can't!
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Howdey Valor!
 
